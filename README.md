@@ -1,1 +1,1 @@
-# old-idzcreck
+# <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=40&duration=3000&pause=1000&color=AF0001&width=435&lines=MIX+OLD+ID+CRECKER" alt="Typing SVG" /></a>
